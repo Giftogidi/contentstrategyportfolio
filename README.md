@@ -8,7 +8,7 @@ Based in Lagos, Nigeria.
 
 ## Portfolio
 
-**[View the full portfolio (PDF)](ContentStrategistPortfolio.pdf)**
+**[View the full portfolio (PDF)](Gift_Content_Strategist_Portfolio.pdf)**
 
 ---
 

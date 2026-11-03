@@ -8,7 +8,7 @@ Based in Lagos, Nigeria.
 
 ## Portfolio
 
-**[View the full portfolio (PDF)](Gift_Ogidi_Content_Strategist.html)**
+**[View the full portfolio (PDF)](index.html)**
 
 ---
 

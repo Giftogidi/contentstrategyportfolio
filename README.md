@@ -62,4 +62,4 @@ Content strategy, social media systems, and digital product design.
 
 - Email: sunshineogidi@gmail.com
 - Social: @giftogidi
-- LinkedIn: [paste your link]
+- LinkedIn: [www.linkedin.com/in/gift-ogidi]
